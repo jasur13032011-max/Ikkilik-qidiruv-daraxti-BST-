@@ -1,0 +1,1 @@
+# Ikkilik-qidiruv-daraxti-BST-
